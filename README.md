@@ -1,0 +1,2 @@
+# Roblox-Ransomware-
+play roblox for 10 minutes and get your files back!? WARNING, THIS IS A RANSOMWARE FOR ENTERTAINMENT PURPOSES ONLY, IF YOU DONT WANT YOUR FILES TO GET CRYPTOGRAPHED
